@@ -2,4 +2,5 @@
 
 https://steamcommunity.com/id/sSsssaaaaallllll/ ;; https://t.me/pneumonoinfo ;; https://t.me/rottenscar
 
-<img width="300" height="100" alt="tumblr_f779b710ca2d4cab751bb590412592b5_7a8d40e0_400" src="https://github.com/user-attachments/assets/904e93ed-d0ff-4c5e-aedf-5620f2dffb9d" />
+<img width="2048" height="307" alt="tumblr_cdb6f2163783334998c9fa21da2f96f7_7226070f_2048" src="https://github.com/user-attachments/assets/1fa3573c-394b-4a4a-aff9-a83317b6300e" />
+
