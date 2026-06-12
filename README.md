@@ -22,5 +22,5 @@ https://steamcommunity.com/id/sSsssaaaaallllll/ ;; https://t.me/pneumonoinfo ;; 
 <img width="99" height="56" alt="tumblr_e78990692cbddc0bd0b3420df4b51266_264e4d2e_100" src="https://github.com/user-attachments/assets/d0037fa1-c947-48ef-93d3-0b596f8b18ac" />
 <img width="99" height="57" alt="tumblr_88a5675348d89ba0895d09aeb233b808_08ed3b52_100" src="https://github.com/user-attachments/assets/04e87ca8-62be-4270-b901-8210ea8a3edd" />
 
-![beholder-beholder-conductor](https://github.com/user-attachments/assets/2e96a8b4-75a2-4522-b3b7-9a304ac76d38)
+<img width="430" height="266" alt="tumblr_5bbf6dbe8568b30cbdcc31aaa1633abd_fa3b1c7b_500" src="https://github.com/user-attachments/assets/44b88f57-db8e-4ae6-9cdf-b405c3493f65" />
 
