@@ -16,4 +16,7 @@ https://steamcommunity.com/id/sSsssaaaaallllll/ ;; https://t.me/pneumonoinfo ;; 
 <img width="99" height="56" alt="tumblr_aafa27da49c476e347202fc75f581412_f7e34585_100" src="https://github.com/user-attachments/assets/685b37c6-1f24-47cf-aa58-9d21a6a88cab" />
 <img width="99" height="56" alt="tumblr_906246137d152be139e083efa06fe70c_453b5f3c_100" src="https://github.com/user-attachments/assets/b303dd7a-a29b-4d29-a0ff-21cba95498d4" />
 <img width="99" height="56" alt="tumblr_85684fc97993b549bf95902862a97cbe_d9e6be97_100" src="https://github.com/user-attachments/assets/70ad00e2-34db-4564-8e3d-bbe12505500b" />
+<img width="99" height="56" alt="tumblr_d1a478d648e348a8e4eaf71fc42305f1_3ccd7082_100" src="https://github.com/user-attachments/assets/17195a4f-7595-4ded-8523-fb6cd96c71b3" />
+<img width="99" height="56" alt="tumblr_e78990692cbddc0bd0b3420df4b51266_264e4d2e_100" src="https://github.com/user-attachments/assets/d0037fa1-c947-48ef-93d3-0b596f8b18ac" />
+<img width="99" height="57" alt="tumblr_88a5675348d89ba0895d09aeb233b808_08ed3b52_100" src="https://github.com/user-attachments/assets/04e87ca8-62be-4270-b901-8210ea8a3edd" />
 
