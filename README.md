@@ -7,7 +7,7 @@
 <img width="99" height="56" alt="tumblr_7a1a181cd039b10955755f5e1fc86e51_5427ea09_250" src="https://github.com/user-attachments/assets/73f7636f-ca14-4423-9769-f5d49bc6455e" />
 <img width="99" height="56" alt="tumblr_3f05e59e4c97701f0ea258d42ec193b1_920f1c62_250" src="https://github.com/user-attachments/assets/587c6351-e0fc-4aec-ab25-0856bdd0d4a5" />
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝙘𝙝𝙚𝙘𝙠 𝙢𝙮 𝙨𝙩𝙚𝙖𝙢, 𝙞𝙣𝙛𝙤 𝙖𝙣𝙙 𝙖𝙧𝙩 𝙘𝙝𝙖𝙣𝙣𝙚𝙡 𝙤𝙣 𝙩𝙚𝙡𝙚𝙜𝙧𝙖𝙢!!!
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝙘𝙝𝙚𝙘𝙠 𝙢𝙮 𝙨𝙩𝙚𝙖𝙢, 𝙞𝙣𝙛𝙤 𝙖𝙣𝙙 𝙖𝙧𝙩 𝙘𝙝𝙖𝙣𝙣𝙚𝙡 𝙤𝙣 𝙩𝙚𝙡𝙚𝙜𝙧𝙖𝙢!!!
 
 https://steamcommunity.com/id/sSsssaaaaallllll/ ;; https://t.me/pneumonoinfo ;; https://t.me/rottenscar
 
